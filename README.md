@@ -1,2 +1,1 @@
-[.......
-](https://pastebin.com/9uccXeCG)
+https://pastebin.com/9uccXeCG
